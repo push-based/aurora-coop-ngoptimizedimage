@@ -1,0 +1,1 @@
+# aurora-coop-ngoptimizedimage
